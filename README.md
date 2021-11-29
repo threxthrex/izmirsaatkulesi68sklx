@@ -1,1 +1,0 @@
-# izmirsaatkulesi68sklx
